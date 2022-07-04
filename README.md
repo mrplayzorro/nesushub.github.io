@@ -10,4 +10,4 @@ Also check out our server(s)
 
 [Our server](https://discord.gg/YBvKXJqtSS)
 
-CA Hub has been discontinued.
+CA Hub has been discontinued, dont use it. It sucks.
